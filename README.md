@@ -30,4 +30,4 @@ INTERESTS
 
 **hxh**, **hnk**, tdlosk, mp100, trigun/stamp, tbhk, <sub> etc </sub>
 ***
-[**spacehey**](https://spacehey.com/616) | [retrospring](https://retrospring.net/@illvmi) | [prn cc](pronouns.cc/@ILLUMI)
+[**spacehey**](https://spacehey.com/616) | [retrospring](https://retrospring.net/@illvmi) | [prn cc](https://pronouns.cc/@ILLUMI)
