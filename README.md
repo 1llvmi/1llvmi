@@ -30,4 +30,4 @@ INTERESTS
 
 **hxh**, **hnk**, tdlosk, mp100, trigun/stamp, tbhk, <sub> etc </sub>
 ***
-[carrd](https://irvmi.carrd.co) | [retrospring](https://retrospring.net/@illvmi)
+[**carrd**](https://irvmi.carrd.co) | [retrospring](https://retrospring.net/@illvmi)
