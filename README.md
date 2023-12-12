@@ -19,7 +19,7 @@ PT
 
 ✸ c + h if asked
 
-✸ dont take heavy inspo/copy my skins
+✸ dont take heavy inspo/copy my ponies
 
 ✸ hide/block freely
 
@@ -30,4 +30,4 @@ INTERESTS
 
 **hxh**, **hnk**, tdlosk, mp100, trigun/stamp, tbhk, <sub> etc </sub>
 ***
-[retrospring](https://retrospring.net/@illvmi) | [prn cc](https://pronouns.cc/@ILLUMI)
+[carrd](https://irvmi.carrd.co) | [retrospring](https://retrospring.net/@illvmi)
