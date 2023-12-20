@@ -1,4 +1,4 @@
-![?](https://cdn.discordapp.com/attachments/940136922028859433/1165991699256983654/illumi.gif?ex=6548dd64&is=65366864&hm=7c6ba671d9c5d143c84db56a74eda97fdb845863b8fc197befc8718dc006e38b&) my name is illumi. **HX**/it. **EN** + CN only.
+my name is illumi. **HX**/it. **EN** + CN only.
 
 ***
 
