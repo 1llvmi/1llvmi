@@ -1,4 +1,4 @@
-illumi or other nicknames. hx/it. english + 中文 only.
+illumi or other nicknames. english + 中文 only.
 
 ***
 ```
