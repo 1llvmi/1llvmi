@@ -1,4 +1,4 @@
-illumi or other nicknames. 16. english + 中文 only.
+illumi or [other aliases](https://pronouns.cc/@illumi). english + 中文.
 
 ***
 ```
