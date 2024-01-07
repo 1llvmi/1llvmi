@@ -1,12 +1,10 @@
-illumi or other nicknames. english + 中文 only.
+illumi or other nicknames. 16. english + 中文 only.
 
 ***
 ```
 BYI
 ```
 ✸ interest specific. we wont get along if u arent a mutual.
-
-✸ heavy abbreviation usage. 
 
 ✸ no filter. swear often, rarely use reclaimed slurs.
 
