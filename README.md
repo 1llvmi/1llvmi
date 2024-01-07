@@ -12,6 +12,8 @@ BYI
 
 ✸ no tone tags. ask if u need them. 
 
+✸ nearly always online w my [partner](https://hysk0a.carrd.co).
+
 ```
 BOUNDARIES
 ```
