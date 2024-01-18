@@ -30,5 +30,5 @@ INTERESTS
 ***spiders***, ***insects***, kin assignment, analog horror, true crime docs, philosophy, psychology n other sciences, <sub> etc. </sub>
 
 ***hxh***, ***hnk***, mononoke, devilman crybaby, tdlosk, mp100, trigun/stamp, <sub> etc. </sub>
-***
-[**carrd**](https://irvmi.carrd.co) | [retrospring](https://retrospring.net/@illvmi)
+
+more info on my [neocities](https://illvmi.neocities.org).
