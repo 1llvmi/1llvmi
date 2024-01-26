@@ -1,4 +1,4 @@
-illumi or [other aliases](https://pronouns.cc/@illumi). english + 中文.
+illumi or [other aliases](https://pronouns.cc/@illumi). english and 中文.
 
 ***
 ```
@@ -10,7 +10,7 @@ BYI
 
 ✸ no tone tags. ask if u need them. 
 
-✸ nearly always online w my [partner](https://hysk0a.carrd.co).
+✸ nearly always online with my [partner](https://hysk0a.carrd.co).
 
 ```
 BOUNDARIES
@@ -22,13 +22,11 @@ BOUNDARIES
 
 ✸ dont take heavy inspo/copy my ponies.
 
-✸ no dni list. hide/block freely.
+✸ no dni list. i hide/block freely.
 
 ```
 INTERESTS
 ```
-***spiders***, ***insects***, kin assignment, analog horror, true crime docs, philosophy, psychology n other sciences, <sub> etc. </sub>
+***spiders***, ***insects***, ***angelogy***, kin assignment, analog horror, true crime docs, philosophy, psychology n other sciences, <sub> etc. </sub>
 
 ***hxh***, ***hnk***, mononoke, devilman crybaby, tdlosk, mp100, trigun/stamp, <sub> etc. </sub>
-
-more info on my [neocities](https://illvmi.neocities.org).
