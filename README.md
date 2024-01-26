@@ -1,32 +1,32 @@
-illumi or [other aliases](https://pronouns.cc/@illumi). english and 中文.
+**NAME:** illumi
 
+**LANGUAGE:** english, 中文
+
+**ETHNICITY:** chinese
 ***
 ```
-BYI
+ENTRY #1 - SUBJECT BEHAVIOR.
 ```
-✸ interest specific. we wont get along if u arent a mutual.
+＞ no filter. swear occasionally, and rarely use reclaimed slurs.
 
-✸ no filter. swear often, rarely use reclaimed slurs.
+＞ no tone tags.
 
-✸ no tone tags. ask if u need them. 
+＞ nearly always seen with subject #4.
 
-✸ nearly always online with my [partner](https://hysk0a.carrd.co).
-
-```
-BOUNDARIES
-```
-
-✸ whisper to interact/befriend me.
-
-✸ ask to cuddle/hide.
-
-✸ dont take heavy inspo/copy my ponies.
-
-✸ no dni list. i hide/block freely.
+＞ hide/block freely.
 
 ```
-INTERESTS
+ENTRY #2 - SUBJECT BOUNDARIES.
 ```
-***spiders***, ***insects***, ***angelogy***, kin assignment, analog horror, true crime docs, philosophy, psychology n other sciences, <sub> etc. </sub>
+＞ whisper to interact with or befriend.
 
-***hxh***, ***hnk***, mononoke, devilman crybaby, tdlosk, mp100, trigun/stamp, <sub> etc. </sub>
+＞ ask to cuddle/hide.
+
+＞ do not copy/take heavy inspiration.
+
+```
+ENTRY #3 - SUBJECT INTERESTS.
+```
+＞ spiders, insects, angelogy, kin assignment, analog horror, true crime docs, philosophy, psychology n other sciences, <sub> etc. </sub>
+
+＞ hxh, hnk, mononoke, devilman crybaby, tdlosk, mp100, trigun/stamp, <sub> etc. </sub>
