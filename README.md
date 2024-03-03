@@ -11,7 +11,7 @@ ENTRY #1 - SUBJECT BEHAVIOR.
 
 ＞ no tone tags.
 
-＞ nearly always seen with subject #4.
+＞ nearly always seen with subject #44.
 
 ＞ hide/block freely.
 
